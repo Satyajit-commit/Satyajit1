@@ -1,4 +1,4 @@
 # Satyajit1
 repo is start
 <br>
-Author-Satyajit Gochhayat
+Author-Satyajit(passionate)
